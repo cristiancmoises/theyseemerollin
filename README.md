@@ -1,6 +1,10 @@
 # Windows 12 - THE MOST USED OS (BUT ROLLIG RELEASE)
 ## ... BUT ROLLING... ROLLING... ROLLING... BABY! ...
 ### HEY... HOW ARE YOU? I'm fine... maybe do you see me rolling? 
+
+  ![rolling-they-see-me-hating](https://user-images.githubusercontent.com/86272521/213595739-02bc169c-bdd3-4797-882c-03ee0738bcfd.gif)
+
+
 ![mini](https://user-images.githubusercontent.com/86272521/213594659-531e15db-eab9-46d6-b543-03915a039404.png)
 
 ## THE WINDOWS 12 ROLLING RELEASE INCLUDES:
